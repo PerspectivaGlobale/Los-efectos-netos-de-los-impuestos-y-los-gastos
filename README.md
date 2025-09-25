@@ -1,1 +1,2 @@
 # Los-efectos-netos-de-los-impuestos-y-los-gastos
+Con un presupuesto equilibrado, los gastos restituyen a la corriente de poder de compras las sumas exactas que los tributos extraen de ellas. Sin embargo, el programa de ingresos y gastos como un todo tiene efectos significativos sobre el funcionamiento de la economía. Tales efectos pueden agruparse en tres categorías: distribuciones, poder de compra, distribución de recursos y el nivel de ingreso nacional.
